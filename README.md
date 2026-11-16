@@ -1,1 +1,1 @@
-# HIJRAH
+# RUKUN SOLAT
